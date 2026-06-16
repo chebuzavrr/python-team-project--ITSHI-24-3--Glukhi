@@ -1,0 +1,1 @@
+# python-team-project--ITSHI-24-3--Glukhi
